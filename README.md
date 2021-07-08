@@ -1,0 +1,1 @@
+# mortaldiary.github.io
